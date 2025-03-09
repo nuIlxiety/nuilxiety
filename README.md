@@ -1,1 +1,1 @@
-![](https://files.catbox.moe/defc8v.webp)
+![Cuddles + hugs are always welcomed ! Usually off-tabbed, so please whisper 2 interact. I don't accept random friend requests, so asking beforehand will be much appreciated](https://files.catbox.moe/defc8v.webp)
